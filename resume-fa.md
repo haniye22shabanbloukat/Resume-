@@ -46,6 +46,6 @@ body{
 
 
 ### تماس با من 
-+ تلفن :09214484315 
-ایمیل: haniyeshabanbloukat78@gmail.com
 
++ تلفن :09195947466 
++ ایمیل : haniyeshabanbloukat78@gmail.com
