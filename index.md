@@ -30,8 +30,7 @@ Hi, I am Haniye Shaban Bloukat, a bachelor's degree student in computer engineer
 + Bachelor of science : computer Engineering
 _ payam Noor University of lavasan .(1397-1399)
 
-+ Diploma : Experimental diploma ( 1385-1397)
-
++ Diploma : Experimental diploma 
 ### language
 
 ---
